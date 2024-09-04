@@ -5,7 +5,7 @@
 ![](https://github-profile-trophy.vercel.app/?username=deatloxtgtps&theme=discord&no-frame=false&no-bg=true&margin-w=4)
 
 ## My Contacts
-![](https://discord.c99.nl/widget/theme-2/1133273538669850726.png)
+![](https://discord.c99.nl/widget/theme-3/1116314347308855306.png)
 
 ---
 [![](https://visitcount.itsvg.in/api?id=deatloxtgtps&label=Profile%20Views&color=1&icon=5&pretty=true)](https://visitcount.itsvg.in)
